@@ -10,7 +10,7 @@
  
  - For further information contact - rupeshreddy484@gmail.com[G-Mail]
                                  
-                                 pho3nix.arr[Instagram]
+ pho3nix.arr[Instagram]
                                  
                                  
 
